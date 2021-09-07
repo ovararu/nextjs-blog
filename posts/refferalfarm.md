@@ -3,13 +3,13 @@ title: 'My refferal links'
 date: '2021-09-07'
 ---
 
-***Celsius***
+## Celsius Network $40-$60
 
-Join Celsius Network using my referral code 126023dcc8 when signing up and earn $50 in BTC with your first transfer of $400 or more! #UnbankYourself
+Join Celsius Network using my referral code **126023dcc8** when signing up and earn $50 in BTC with your first transfer of $400 or more!
 
-[Celsius Network](https://celsiusnetwork.app.link/126023dcc8)
+[Use this link to Celsius Network](https://celsiusnetwork.app.link/126023dcc8)
 
-Octavian Celsius referral code 126023dcc8
+Octavian Celsius referral code **126023dcc8**
 
 - 1Share Link - Share your unique referral link with friends and have them sign up through it.
 - 2Verify - Once a friend registers, they should pass our Advanced Verification to confirm their identity.
